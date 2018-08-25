@@ -1,4 +1,4 @@
-#https://Newsgithub.io [logo Versao nEw]
+#https://Newsgithub.io.com [logo Versao nEw]
 
 --------------------------------------------------------------------------------
 
